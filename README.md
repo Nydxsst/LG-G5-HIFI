@@ -1,2 +1,0 @@
-# LG-G5-HIFI
-LG-G5-HIFI外壳
